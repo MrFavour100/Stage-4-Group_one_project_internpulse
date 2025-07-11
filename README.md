@@ -54,3 +54,13 @@ Recommend a tech-driven solution that is accessible, stigma-free, and culturally
 **Kazeem Bintu Adunni**
 
 **Ubasom Josemaria Ibekwe-uche**
+
+[Click to View full report](https://drive.google.com/file/d/1z3mR6-mUEvsVNwmaMfL7_ji2zeQEuapm/view?usp=sharing)
+
+
+<a href="Mental Health App Report.pdf">Download here (pdf file)</a>
+<a href="Zencamind Data.xlsx">Download Raw data here (xlsx file)<a>
+
+[Click to View Google Form Survey Link](https://docs.google.com/forms/d/e/1FAIpQLSfkLtLkIOU5rpfXbKR3lMeWklxLqEe79cxshsQbWlipMvvPJQ/viewform)
+
+
